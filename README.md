@@ -1,0 +1,2 @@
+# premium-mortise-frame-001-timber-frame-mortise-layout-ca
+Spend hours hand-calculating mortise dimensions and angles, or use this Timber Frame Mortise Layout Calculator to get pixel-perfect layouts in minutes. Stop guessing on joinery—let Notion do the math while you focus on the craft.  This Timber Frame Mortise Layout Calculator eliminates manual calculation errors that waste wood and time on complex jo
